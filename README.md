@@ -1,0 +1,1 @@
+# synergia-photovoltaic-installations
